@@ -8,10 +8,7 @@ I am lookng to do a project with anyone as long as it includes javascript or pyt
 
 
 
-Some of my biggest projects?
-1.A nitrotype bot
-2.45 python projects in 3 days
-3.chugging 16oz water 11 secondd
+I also like reading and gaming. I play on PC.
 
 
 
