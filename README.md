@@ -10,12 +10,12 @@ I am lookng to do a project with anyone as long as it includes javascript or pyt
 
 Some of my biggest projects?
 1.A nitrotype bot
-2. 45 python projects in 3 days
-3. chugging 16oz water 11 secondd
+2.45 python projects in 3 days
+3.chugging 16oz water 11 secondd
 
 
 
-Nores for people
+Motivation for people
 1. It's okay to take breaks while coding, dont over work it!
 2. A fail is proof you are trying.
 3. Keep on going if it makes you happy
@@ -26,5 +26,5 @@ Nores for people
 
 
 
-<33 I love you gabby!!
+I love you gabby! <3
 
